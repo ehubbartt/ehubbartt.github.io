@@ -5,7 +5,7 @@
 **Telecaster** and **Stratocaster** are two different types of electric guitars. Both are very similar to each other in a lot of ways but to the trained ear there is a very *big difference*. The easiest way to tell the difference between the guitars is by the appearance of them.
 
 The following image is of a telecaster guitar:
-![](url fhttps://media.guitarcenter.com/is/image/MMGS7/L59796000001000-00-720x720.jpg)
+![](https://media.guitarcenter.com/is/image/MMGS7/L59796000001000-00-720x720.jpg)
 
 As you can see the pick-guard has a flat edge on the bottom and the knobs on the side are vertically aligned. There is also typically only one pickup on these guitars which is one of the reasons that the guitar has such a unique *twangy* sound to them.
 
