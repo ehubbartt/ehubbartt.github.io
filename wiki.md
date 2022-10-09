@@ -16,7 +16,7 @@ As you can see the pick-guard has a curved edge and the knobs are not aligned wi
 
 ### What is my personal favorite?
 
-Right now I have been mainly playing on my new G&L stratocaster
+Right now I have been mainly playing on my new G&L Telecaster.
 
 ####Here is a picture of it:
 ![](https://i.imgur.com/khVHYvq.jpg)
